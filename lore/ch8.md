@@ -513,6 +513,8 @@ And when neither side understood what had been said—
 
 nothing moved.
 
+Tickoni understood the curved mark at last. Some laws had shattered. Others had been divided.
+
 Suddenly, something black rose from the wooden box.
 
 A small fragment spun through the air.
