@@ -10,7 +10,9 @@ Seventeen hundred rei remained.
 
 The boatwright had finally received the three hundred rei he was owed. Maro’s investment basket still existed only in the practice ledger, waiting until he could afford to carry its real weight.
 
-Two debts remained, but winter already had first claim on his purse. And winter did not care whether the money was called savings.
+Two debts remained, due in spring. Besides, winter already had first claim on his purse.
+
+And winter did not care whether Maro called it savings or investment money.
 
 Every meal, night of shelter, and mile across the sea reduced the money that protected him from the next storm. He had no boat to return to and no trade that paid him while he travelled.
 
