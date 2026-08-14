@@ -28,7 +28,7 @@ At the city’s center stood a bronze bell beneath a painted sign:
 
 **THE THOUSAND-CRANE AUCTION**
 
-No real coins moved here. Traders used **ori**, folded paper currency that existed only inside the auction’s practice ledgers.
+By rule, no real coins moved here. Traders used **ori**, folded paper currency that existed only inside the auction’s practice ledgers.
 
 Every crane carried a paper trade.
 
