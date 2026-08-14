@@ -232,7 +232,7 @@ The orchard pipes shook. Bathhouse water surged upward. A crack split the courty
 
 Far beneath Kōri, a blue eye opened inside the ice.
 
-Takaokami, Kōri's old mountain dragon, had slept beneath the island for ages. The new channels had redirected warmth around its head.
+Mizuchi, an old water dragon, had slept beneath the island for ages. The new channels had redirected warmth around its head.
 
 The mountain moved with it.
 
@@ -308,7 +308,7 @@ Tickoni opened the harbor path.
 
 Steam roared beneath Kōri. Warm water burst through the seawall, carrying the trapped pressure into the Ledger Sea.
 
-Takaokami’s enormous body shifted beneath the ice.
+Mizuchi’s enormous body shifted beneath the ice.
 
 Then the blue eye closed.
 
