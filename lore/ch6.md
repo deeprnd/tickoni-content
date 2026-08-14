@@ -274,9 +274,7 @@ A name returned to the sea.
 
 **The Seal of Placement.**
 
-Every action must have a declared place.
-
-Every shared place must have a rule.
+*Every act must find its place.*
 
 Maro watched the ships divide among the channels.
 

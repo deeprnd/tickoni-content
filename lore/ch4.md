@@ -396,7 +396,7 @@ A name returned to the sea.
 
 **The Seal of Weight.**
 
-Every action must show its consequence.
+*Every choice bears consequences.*
 
 Tickoni touched the two black marks.
 

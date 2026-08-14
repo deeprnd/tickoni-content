@@ -328,9 +328,9 @@ It had returned only after the rule had been tested.
 
 A name returned to the air.
  
- **The Seal of the Ticket.**
+**The Seal of the Ticket.**
  
- A wish must become a bounded proposal before action.
+*Every wish has its limits.*
  
 Tickoni touched the new mark beneath its ribs.
 

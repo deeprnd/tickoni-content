@@ -532,7 +532,7 @@ A name returned.
 
 **The Seal of Meaning.**
 
-**What crosses a boundary must keep its meaning.**
+*What crosses must remain itself.*
 
 Mokichi stared at the new mark.
 
