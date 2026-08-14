@@ -76,7 +76,7 @@ The clerk checked the wooden price board.
 
 — It did not unload fruit here.
 
-The traveller placed two rei on the counter.
+The traveller placed fifty sen on the counter.
 
 — My children have never tasted one.
 
@@ -358,7 +358,7 @@ Tickoni cut the apple with a kitchen knife and took the first bite.
 
 The children laughed.
 
-The traveller bought the next slice for one copper coin.
+The traveller bought the next slice for one sen.
 
 Fruit already grown.
 
