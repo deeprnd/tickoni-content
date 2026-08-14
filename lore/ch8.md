@@ -198,7 +198,7 @@ Nobody moved.
 
 His smile disappeared.
 
-— Guild Hachi-Roku became very good at making pieces fit. Eventually they stopped knowing whether the same command entered one end and came out the other.
+— The old guild became very good at making pieces fit. Eventually they stopped knowing whether the same command entered one end and came out the other.
 
 The next morning, the mountain shook.
 
@@ -226,7 +226,7 @@ Yamori examined both.
 
 — I can connect them.
 
-He returned from the Guild Hachi-Roku chamber with a chain of fittings.
+He returned from the adapter chamber with a chain of fittings.
 
 Bronze into square.
 
@@ -330,7 +330,7 @@ He looked at the two plates.
 
 — We still don't know what they are saying.
 
-Then he tore the Guild Hachi-Roku adapters apart.
+Then he tore the old adapters apart.
 
 — They don't need to speak alike. They need to agree on what crosses.
 
