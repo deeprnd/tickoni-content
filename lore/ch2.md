@@ -150,13 +150,13 @@ He bowed, one arm across his chest, the other raised like flame in wind.
 
 — Then who are you?
 
-— Firedancer, keeper of the fast path, breaker of bottlenecks, prince of the skipped queue, terror of slow bridges, and temporary master of wherever my feet have not yet exploded.
+— Kagari — Shiranui of the Ledger Sea! Crosser of the Nigemizu! Reaper of the Eightfold Serpent! Breaker of Yomi's Stone!
 
 He waited.
 
 Tickoni said nothing.
 
-Firedancer sighed.
+Kagari sighed.
 
 — Usually there is more reaction.
 
@@ -174,7 +174,7 @@ But the vow remained.
 
 — I am going to forge a contract no oni can break.
 
-Firedancer stopped chewing.
+Kagari stopped chewing.
 
 Then looked at Tickoni.
 
@@ -204,7 +204,7 @@ The fifth on nothing.
 
 Tickoni stared at the marks.
 
-Firedancer glanced back at the boat.
+Kagari glanced back at the boat.
 
 — An unbreakable contract...
 
@@ -218,11 +218,15 @@ A grin.
 
 He turned away, muttering as he counted on his fingers.
 
-— Keeper of the fast path... prince of the skipped queue... lord of ambition...
+— Shiranui... Nigemizu... Eightfold Serpent... Yomi...
+
+A fifth finger rose.
+
+— Lord of Vows Larger Than His Boat...
 
 He paused.
 
-— No. Awful.
+— No. That one belongs to you.
 
 Then he pointed at the first ember mark.
 
@@ -240,7 +244,7 @@ Its foot punched through the ripple.
 
 Cold water swallowed its leg.
 
-Firedancer caught its wrist before the sea took the rest.
+Kagari caught its wrist before the sea took the rest.
 
 — Heavy.
 
@@ -254,7 +258,7 @@ Tickoni pulled itself up.
 
 — You stepped where I had been.
 
-Firedancer tapped the ripple. Two small waves met, lifted each other for less than a breath, then separated.
+Kagari tapped the ripple. Two small waves met, lifted each other for less than a breath, then separated.
 
 — This held me when the waves met. Then it stopped being a step.
 
@@ -270,7 +274,7 @@ Tickoni saw nothing.
 
 — Warm water. Cold water. They meet here.
 
-Firedancer placed one foot on the empty sea.
+Kagari placed one foot on the empty sea.
 
 The water held.
 
@@ -342,7 +346,7 @@ The fish vanished.
 
 Splash.
 
-Firedancer hauled Tickoni back up.
+Kagari hauled Tickoni back up.
 
 — Too slow? — Tickoni asked.
 
@@ -378,7 +382,7 @@ Nothing.
 
 Stop.
 
-Tickoni looked, not at where Firedancer had stood, but at the water itself.
+Tickoni looked, not at where Kagari had stood, but at the water itself.
 
 A faint seam trembled where two temperatures met.
 
@@ -392,7 +396,7 @@ Not with a name.
 
 Only heat.
 
-Firedancer nodded.
+Kagari nodded.
 
 — There.
 
@@ -406,11 +410,11 @@ Tickoni jumped back to the boat.
 
 Almost gracefully.
 
-Firedancer allowed this to count.
+Kagari allowed this to count.
 
 Dawn paled the Ledger Sea. Ahead, black reefs rose like broken teeth.
 
-Firedancer pointed east.
+Kagari pointed east.
 
 — You know, your boat can pass there.
 
@@ -420,7 +424,7 @@ Firedancer pointed east.
 
 — What should I watch?
 
-Firedancer tapped the rail.
+Kagari tapped the rail.
 
 — What touches the boat.
 
@@ -438,7 +442,7 @@ Foam covered a black reef tooth, then cleared.
 
 Tickoni scratched a line into the rail.
 
-Firedancer’s grin faded.
+Kagari’s grin faded.
 
 — And when the sea lies.
 
@@ -500,7 +504,7 @@ Not long.
 
 Long enough.
 
-Ahead, Firedancer stood on the last reef, wrapped in ember-red light.
+Ahead, Kagari stood on the last reef, wrapped in ember-red light.
 
 — Better.
 
@@ -516,7 +520,7 @@ Tickoni looked at the wake.
 
 — Where does it lead?
 
-Firedancer smiled.
+Kagari smiled.
 
 — Better question next time.
 
