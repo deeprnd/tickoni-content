@@ -82,7 +82,7 @@ The traveller placed fifty sen on the counter.
 
 The clerk pushed the coins back.
 
-— I cannot sell what the Exchange does not carry.
+— Half a rei or not, the Exchange does not carry apples.
 
 She looked toward the frozen harbor. Reaching Akane would require another ship, another fare, and several days through winter water.
 
@@ -182,9 +182,9 @@ The orchard pipes shook. Bathhouse water surged upward. A crack split the courty
 
 Far beneath Kōri, a blue eye opened inside the ice.
 
-Mizuchi, an old water dragon, had slept beneath the island for ages. The new channels had redirected warmth around its head.
+Mizuchi, an old water dragon, had slept coiled in a forgotten watercourse for ages. The new channels had redirected warmth around its head.
 
-The mountain moved with it.
+The buried channel moved with it.
 
 Ice scales broke through the street. Steam burst from drains, and oil barges tore loose from their chains.
 
