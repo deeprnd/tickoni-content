@@ -79,7 +79,7 @@ She landed in Tickoni’s boat and returned to human form. Her mask was cracked.
 
 — To forge a contract no oni can break.
 
-The kitsune studied him for a moment.
+The kitsune studied Tickoni for a moment.
 
 — I see.
 
@@ -266,7 +266,7 @@ Tickoni recognized the black fire before the fragment reached it.
 
 Another lost law.
 
-It struck the flame—script beneath Tickoni's ribs and locked beside Ticket and Weight.
+It struck the flame-script beneath Tickoni's ribs and locked beside Ticket and Weight.
 
 All eight harbor bells rang.
 
