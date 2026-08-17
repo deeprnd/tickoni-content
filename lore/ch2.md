@@ -160,7 +160,11 @@ Kagari sighed.
 
 — Usually there is more reaction.
 
-He sat on the rail, produced a pickled agave fruit from his sleeve, and inspected the torn sail.
+He sat on the rail, produced a pickled ume from his sleeve, and inspected the torn sail.
+
+His face tightened.
+
+He chewed anyway.
 
 — You are lost.
 
@@ -536,9 +540,7 @@ Tickoni stood alone in the boat.
 
 Something rolled against its foot.
 
-Half a pickled agave fruit.
-
-One bite missing.
+The pickled ume. One bite missing.
 
 Tickoni picked it up, stared at it, then looked toward the empty horizon.
 
