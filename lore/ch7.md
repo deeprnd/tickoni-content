@@ -176,58 +176,6 @@ Genza always answered:
 
 — When an apple exists.
 
-Then paper slips appeared in the market.
-
-**FIRST HARVEST FUTURES**
-
-**TEN APPLES BEFORE SPRING**
-
-**GUARANTEED DELIVERY**
-
-The traveller in the green cloak held one slip.
-
-— They say this guarantees my apples.
-
-Tickoni took it.
-
-The Seal of Weight burned.
-
-Across the snow appeared what the paper concealed.
-
-One untested tree.
-
-No harvest yet.
-
-No reserve.
-
-Promises stacked against the same uncertain harvest.
-
-Tickoni tore the slip in half.
-
-— It guarantees a promise. Not an apple.
-
-A trader raised his abacus.
-
-— The tree exists.
-
-— A tree is not delivery.
-
-— The harvest is likely.
-
-— Likelihood is not a guarantee.
-
-Genza struck the floor with his keys.
-
-— Close every apple claim.
-
-The traders protested.
-
-— You allowed the orchard!
-
-— I allowed a trial, not a market.
-
-The slips were nailed outside the Exchange Hall as warnings.
-
 Then the ground moved.
 
 The orchard pipes shook. Bathhouse water surged upward. A crack split the courtyard.
@@ -348,8 +296,6 @@ No reserve spent.
 
 No hidden key.
 
-No unpaid claim.
-
 Tickoni cut the apple with a kitchen knife and took the first bite.
 
 — Well? — Maro asked from the gate, a blue Exchange ledger beneath his arm.
@@ -360,11 +306,9 @@ The children laughed.
 
 The traveller bought the next slice for one sen.
 
-Fruit already grown.
+Fruit grown here.
 
-Payment already named.
-
-No promise beyond what rested in her hand.
+Sold under Kōri's own rules.
 
 The Exchange opened a small red counter:
 
