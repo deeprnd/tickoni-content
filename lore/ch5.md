@@ -178,7 +178,7 @@ Saburō held out one paw.
 
 Maro handed it over.
 
-Saburō toward the ribbon table. His sleeves covered his paws for only a moment.
+Saburō carried the crane to the ribbon table. His sleeves covered his paws for only a moment.
 
 Then he returned a pale-blue crane tied with gold thread.
 
