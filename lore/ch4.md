@@ -16,7 +16,7 @@ Yet he counted more slowly now.
 
 Beside him lay another possibility.
 
-During the afternoon, they had sailed past four islands linked by silver bridges: an ironworks whose furnaces burned without smoke, a cloud tower crowded with messengers, a cable maker threading light beneath the sea, and a broad maker's fund that owned pieces of all three.
+During the afternoon, they had sailed past four islands linked by silver bridges: an ironworks whose furnaces burned without smoke, a cloud tower crowded with messengers, a cable maker threading light beneath the sea, and a broad maker’s fund that owned pieces of all three.
 
 Maro had watched them until they disappeared behind the mist.
 

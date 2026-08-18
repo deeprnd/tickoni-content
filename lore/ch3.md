@@ -306,7 +306,7 @@ The bounded ticket gave a quiet sound, like metal cooling after flame.
 
 A black fragment rose from beneath it.
 
-Small, curved, and part of an older seal.
+Small, curved, and unmistakably older than Tickoni’s fūin.
 
 Before Tickoni could touch it, the fragment flew toward the lines beneath its ribs and locked into the flame-script below the wound left by the Council.
 
@@ -316,9 +316,9 @@ It had seen that black fire before.
 
 The Council Hall.
 
-The shattered seal.
+The torn fūin.
 
-The sparks fleeing through the roof and scattering across the Ledger Sea.
+The black sparks rising from beneath it and scattering across the Ledger Sea.
 
 This was one of them.
 

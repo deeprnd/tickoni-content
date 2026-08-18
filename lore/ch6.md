@@ -266,7 +266,7 @@ Tickoni recognized the black fire before the fragment reached it.
 
 Another lost law.
 
-It struck the flame-script beneath Tickoni's ribs and locked beside Ticket and Weight.
+It struck the flame-script beneath Tickoni’s ribs and locked beside Ticket and Weight.
 
 All eight harbor bells rang.
 
@@ -293,6 +293,8 @@ Behind them, the captains entered the shared waters in order.
 Ahead, the Ledger Sea opened.
 
 Beneath Tickoni’s ribs, three seals burned.
+
+---
 
 Long after the harbor had gone quiet, the kitsune climbed the ruined signal tower.
 

@@ -16,7 +16,7 @@ One map showed every price. One oracle answered every question. One mirror showe
 
 Still, the villagers kept losing coins.
 
-One evening, a fisherman named Jiro ran into the Council Hall. His hands bled from pulling nets. He carried a cracked order tile.
+One evening, a fisherman named Jirō ran into the Council Hall. His hands bled from pulling nets. He carried a cracked order tile.
 
 — My daughter’s medicine fund, — he said. — The mirror showed everyone buying the Moon Carp. I asked an oni to follow them.
 
@@ -24,19 +24,19 @@ The eldest oni barely looked up.
 
 — And the price fell.
 
-— The company had no boats, — Jiro said. — No catch. Only painted sails and borrowed bells.
+— The company had no boats, — Jirō said. — No catch. Only painted sails and borrowed bells.
 
 The elder shrugged.
 
 — We only did what you asked.
 
-Jiro looked at the empty purse tied to his waist.
+Jirō looked at the empty purse tied to his waist.
 
 No one moved.
 
 Except Tickoni.
 
-Tickoni stood near the rear pillars, smaller than the elders and without their gold rings. It watched Jiro leave.
+Tickoni stood near the rear pillars, smaller than the elders and without their gold rings. It watched Jirō leave.
 
 That answer followed Tickoni into the night.
 
@@ -100,7 +100,7 @@ The oni saw certainty where there was motion.
 
 Profit where there was noise.
 
-Permission where the contract had drawn a line.
+Permission where there was only capability.
 
 Their bodies grew heavy. Their belts filled with tools, shortcuts, permissions, and exceptions. Their marks remained bright, but the oni had begun to treat them as authority rather than restraint.
 
@@ -108,7 +108,7 @@ They had forgotten the oldest law of protection:
 
 **A guardian must know what not to touch.**
 
-For several days, Jiro’s words followed it through the village.
+For several days, Jirō’s words followed it through the village.
 
 *My daughter’s medicine fund.*
 
@@ -136,7 +136,7 @@ Tickoni looked at the merchant.
 
 Then at the purse marked for winter grain.
 
-It remembered Jiro walking out with nothing.
+It remembered Jirō walking out with nothing.
 
 — No.
 

@@ -2,7 +2,7 @@
 
 The sea did not welcome Tickoni.
 
-Without the Order’s seal, no gate opened at its approach. No ledger turned its pages. No marked current offered passage.
+Without the Order’s mark, no gate opened at its approach. No ledger turned its pages. No marked current offered passage.
 
 So Tickoni crossed the Ledger Sea the slow way, in a narrow black boat with a torn sail and a lantern that burned without oil.
 
@@ -24,7 +24,7 @@ On the second night, clouds covered the stars. The lantern showed rope, wet wood
 
 No path appeared beyond them.
 
-The Council had taken the outer seal.
+The Council had taken the outer mark.
 
 Something still burned inside Tickoni.
 
@@ -150,7 +150,7 @@ He bowed, one arm across his chest, the other raised like flame in wind.
 
 — Then who are you?
 
-— Kagari — Shiranui of the Ledger Sea! Crosser of the Nigemizu! Reaper of the Eightfold Serpent! Breaker of Yomi's Stone!
+— Kagari — Shiranui of the Ledger Sea! Crosser of the Nigemizu! Reaper of the Eightfold Serpent! Breaker of Yomi’s Stone!
 
 He waited.
 
@@ -160,7 +160,23 @@ Kagari sighed.
 
 — Usually there is more reaction.
 
+— You broke Yomi’s Stone?
+
+Tickoni’s eyes narrowed.
+
+A pause.
+
+— Chipped it.
+
 He sat on the rail, produced a pickled ume from his sleeve, and inspected the torn sail.
+
+— And the serpent?
+
+Tickoni waited.
+
+Kagari looked away.
+
+— Eightfold is a flexible term.
 
 His face tightened.
 
@@ -560,7 +576,7 @@ Still indifferent.
 
 But no longer blank.
 
-Beneath the wound where the seal had been, five narrow lines warmed once and faded before Tickoni could name them.
+Beneath the wound where the fūin had been, five narrow lines warmed once and faded before Tickoni could name them.
 
 Tickoni raised the torn sail.
 

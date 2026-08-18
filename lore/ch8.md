@@ -1,4 +1,4 @@
-# Chapter 8: The Common Tongue
+## Chapter 8: The Common Tongue
 
 The mountains beyond Kōri looked close from the sea.
 
@@ -32,7 +32,7 @@ A voice called from above.
 
 — Keep left.
 
-An old man sat on a beam spanning the channel, mismatched tools tied across his back.
+An elder miner sat on a beam spanning the channel, mismatched tools tied across his back.
 
 Yamori looked at the calm water.
 
@@ -93,6 +93,8 @@ Yamori opened his mouth, thought better of it, and took the lamp.
 Twenty steps below, the mountain opened.
 
 The mine stretched beyond sight.
+
+Small, mole-like miners moved between the workings, their dark coats powdered white with stone dust.
 
 Waterwheels turned beside bronze pumps. Iron cages climbed through shafts. Wooden carts crossed stone rails.
 
@@ -294,7 +296,7 @@ The brake glowed beneath one possible command.
 
 Its grip vanished.
 
-Six bodies remained above an open shaft.
+The cage dropped toward the open shaft, six miners inside.
 
 The hoist glowed beneath another.
 
@@ -328,11 +330,11 @@ Yamori stared at the controls.
 
 He looked at the two plates.
 
-— We still don't know what they are saying.
+— We still don’t know what they are saying.
 
 Then he tore the old adapters apart.
 
-— They don't need to speak alike. They need to agree on what crosses.
+— They don’t need to speak alike. They need to agree on what crosses.
 
 He kept one connection from each machine.
 
@@ -471,9 +473,9 @@ Perhaps not.
 
 Yamori looked at Tickoni.
 
-— Your seal didn't show this.
+— Your seal didn’t show this.
 
-— I didn't know it was there.
+— I didn’t know it was there.
 
 Yamori reset it, measured it, and tested it.
 
@@ -619,3 +621,25 @@ Placement.
 Meaning.
 
 Ahead, the Ledger Sea opened again.
+
+---
+
+Far across the Ledger Sea, in the village with too many maps, Genza’s letter lay open on a black table.
+
+A claw paused on the line.
+
+*The oni employed three seals of the Order during the incident.*
+
+— Three.
+
+The door opened.
+
+Another oni entered carrying a fresh message slip.
+
+— It’s Tickoni, Grand Warden.
+
+The elder read the slip.
+
+Then folded Genza’s letter.
+
+— Send for the Severer.
