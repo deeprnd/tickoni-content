@@ -32,10 +32,7 @@ Maro touched his purse.
 
 Seventeen hundred rei remained. The boatwright had finally received the three hundred rei he was owed. 
 
-Two debts remained, due in spring. Besides, winter already had first claim on his purse.
-And winter did not care whether Maro called it savings or investment money.
-
-What he needed was income.
+Two debts remained, due in spring.
 
 — Work. I would rather earn my meals than eat my savings.
 
@@ -49,10 +46,6 @@ Ice crews pulled the last marker poles from the western channel.
 
 — Long Night begins tomorrow, — Genza said. — Once the ice closes, no ship leaves Kōri until spring.
 
-For once, the sea had chosen where it would stay.
-
-A customer bell rang inside the market.
-
 A traveller in a green cloak approached the food counter with two children beside her.
 
 — Six apples, please.
@@ -65,23 +58,19 @@ The clerk shook his head.
 
 — It carried no fruit for Kōri.
 
-The traveller placed half a rei on the counter.
+The traveller glanced at her children.
 
 — My children have never tasted one.
 
-The clerk pushed the coin back.
-
 — The Exchange does not carry apples.
-
-She looked toward the frozen harbor.
 
 — Keep your fish, then.
 
-Tickoni watched them disappear among the market stalls.
+Tickoni watched her go.
 
 — Why does the Exchange carry no apples?
 
-The clerk glanced toward Genza before answering.
+The clerk glanced toward Genza.
 
 — Akane grows them inside sealed gardens. The keys, the tools, the repairs—all Akane. So are the harvest and the price.
 
@@ -89,13 +78,9 @@ The clerk glanced toward Genza before answering.
 
 — Today, — Genza intervened. — Tomorrow the gate closes, the price doubles, and we are left holding keys we never owned and nothing to sell.
 
-Tickoni looked around the Exchange.
-
 — So Kōri refuses anything it cannot control.
 
 — We protect what we can maintain.
-
-Tickoni turned to the clerks.
 
 — And how many customers do you send away because of that?
 
@@ -103,7 +88,7 @@ Nobody answered.
 
 Then one clerk shrugged.
 
-— Enough.
+— Enough, but we have only these to offer — pointing at the fish barrel.
 
 Genza folded his wings.
 
@@ -113,11 +98,8 @@ Genza folded his wings.
 
 The clerks laughed.
 
-Genza did not.
+Genza did not and glanced toward the inspection shed.
 
-His keys clicked once against his belt.
-
-Genza glanced toward the inspection shed.
 — One Akane sapling came with the last southern ship as a present, just to spite us. We never found a way to maintain it.
 
 One clerk pointed toward the fish counter.
@@ -160,23 +142,13 @@ The next morning, Genza sent for Yamori, a small green lizard craftsman with a b
 
 — Can you make Akane equipment work here? — Tickoni asked.
 
-— I can make it fit Kōri tools. That does not make it Kōri.
-
-He opened his belt.
-
-Cut-down wrenches. Rehandled gauges. Fittings from half a dozen shores.
-
-— One guild makes the lock. Another makes the key. A third measures the door. Then someone loses the instructions and calls for me.
+— I can make it fit Kōri tools. That does not make it Kōri. One guild makes the lock. Another makes the key. A third measures the door. Then someone loses the instructions and calls for me.
 
 — You dislike being needed?
 
 Yamori snapped the belt shut.
 
-— I dislike being needed for stupid reasons.
-
-He looked at the mismatched tools.
-
-— One day, I’ll build a workshop that needs no second workshop.
+— I dislike being needed for stupid reasons. One day, I’ll build a workshop that needs no second workshop.
 
 They built beside the bathhouse. Cedar beams raised the sapling above the ice. Yamori replaced hidden fittings with visible joints any Kōri smith could open. Waste warmth ran through exposed pipes.
 
@@ -185,12 +157,6 @@ Through the Long Night, Maro worked the settlement desk while Tickoni tended the
 The Long Night earned its name. A storm tore away a screen. Ice bent the platform.
 
 They rebuilt.
-
-Customers started to ask when apples would be sold.
-
-Genza always answered:
-
-— When an apple exists.
 
 Then the pipes began to knock.
 
@@ -206,39 +172,11 @@ Yamori dropped beside the orchard line and pressed one hand against the pipe.
 
 — Heat is going somewhere it shouldn’t.
 
-A crack opened across the courtyard.
-
-Genza was already moving.
-
-— Clear the bathhouse. Move the eastern reserve.
-
-He pointed at Yamori.
-
-— Find the fault.
-
-Then he disappeared toward the Exchange, his three iron keys already in his hand.
-
 Yamori opened a maintenance hatch beneath the bathhouse.
 
 Steam rose from the darkness.
 
-— Wonderful.
-
-Maro looked down.
-
-— What?
-
-— Old pipes.
-
-— Why is that wonderful?
-
-— Because nobody remembers them.
-
 They descended.
-
-Tickoni first.
-
-Yamori behind it.
 
 Maro followed with the Exchange reserve ledger tucked beneath his coat.
 
@@ -310,8 +248,6 @@ Maro checked the ledger.
 
 — Can Kōri survive it? — Yamori asked.
 
-Maro ran his finger down the page.
-
 — It’s almost ten percent of the reserve. But yes. The other vaults carry us through the thaw.
 
 Yamori reached for the valve.
@@ -319,8 +255,6 @@ Yamori reached for the valve.
 — Then we vent.
 
 — No, — Tickoni said. — That is winter food. I can see exactly what that valve destroys. We are not opening it.
-
-Yamori looked at the other valve.
 
 — And this one?
 
@@ -348,19 +282,13 @@ For one breath, everything became quiet.
 
 Then a deep bell rang somewhere above them.
 
-Maro’s face changed.
-
-He opened the ledger again.
+Maro opened the ledger again.
 
 — Oil cellar.
-
-Another bell.
 
 A sharp smell reached the tunnel.
 
 Oil trickled through the stones beneath their feet.
-
-Maro’s finger stopped on the reserve column.
 
 — How much? — Tickoni asked.
 
@@ -372,19 +300,7 @@ Silence.
 
 He closed the ledger.
 
-— You saved one tenth of the grain. It cost Kōri one fifth of its heat.
-
-Tickoni looked at the Weight vision.
-
-Yamori seized the other valve and opened it.
-
-The pressure steadied.
-
-He looked at Tickoni.
-
-— Your seal showed us the cost. It did not choose for us.
-
-The tunnel stopped shaking.
+— You saved one tenth of the grain. It cost Kōri one fifth of its heat. Your seal showed us the cost. It did not choose for us.
 
 Yamori followed the old bronze line west.
 
@@ -418,39 +334,41 @@ The system vented cleanly.
 
 — Done.
 
-Nobody answered.
-
-Maro still held the ledger.
-
 They climbed back into daylight.
 
-Genza waited beside the broken orchard.
+Genza waited beside the orchard.
 
 — What happened below?
 
-Tickoni looked at the snapped branches.
-
-— I made the wrong call.
-
-— Which cost us a fifth of the winter oil.
-
 Tickoni lowered its head.
 
-— I know.
+— I made the wrong call. And it cost the Exchange a fifth of the winter oil.
 
 Genza looked toward the damaged pipes.
 
-— Then help replace what you spent.
+— Then the debt will be repaid.
 
-They rebuilt through the rest of the Long Night.
+Tickoni followed his gaze.
 
-Yamori redirected bathhouse waste heat through the repaired western network. Tickoni checked what Weight could show before another pipe was moved.
+— I suppose we go back below.
 
-By spring, Kōri had not recovered the lost oil.
+— Oh, no. No, no.
 
-But it had burned far less of what remained.
+Genza folded his wings.
 
-And one apple hung from the surviving branch.
+— I have just the work for you two.
+
+The Long Night was not easy on Kōri. Street lanterns went dark, workshops closed early, and the New Year fires were never lit.
+
+Tickoni and Yamori hauled cargo, cleared ice, scrubbed floors, and worked wherever another pair of hands was needed.
+
+At night, they tended the tree.
+
+By summer, Genza considered their debt settled.
+
+More importantly, the tree had survived.
+
+One apple hung from a branch.
 
 The island gathered.
 
@@ -465,14 +383,6 @@ Tickoni took another.
 Genza held out one wing.
 
 Tickoni gave him a slice.
-
-The elder chewed slowly.
-
-— Hm.
-
-The clerks leaned closer.
-
-Genza took another bite.
 
 — That is a very fine apple.
 
@@ -494,31 +404,13 @@ Genza handed Maro the blue settlement ledger.
 
 Later, at the harbor, Maro faced Tickoni.
 
-— I think I’ll stay through the next season.
-
-Tickoni looked at the blue ledger beneath his arm.
-
-— At the Exchange?
-
-Maro nodded.
-
-— I know how to place a trade. I want to understand what happens after it reaches a place like this.
-
-He looked back toward the settlement desks.
-
-— Deliveries. Reserves. Payments. What keeps the whole thing standing.
-
-Tickoni followed his gaze.
+— I think I’ll stay through the next season. I know how to place a trade. I want to understand what happens after it reaches a place like this. Deliveries. Reserves. Payments. What keeps the whole thing standing.
 
 — Yes. So do I.
 
 A pause.
 
 — Before I can bind the Order, I need to learn how to bind myself.
-
-Maro smiled.
-
-— Then we should get to it.
 
 They bowed.
 
@@ -554,15 +446,9 @@ Yamori unfolded the map.
 
 — Precisely.
 
-Tickoni looked at Genza.
-
-— You think we should go there.
-
-Genza glanced toward the repaired orchard.
+Genza glanced toward the eastern rice vault.
 
 — I think Kōri has benefited sufficiently from your attention.
-
-A beat.
 
 — Tomorrow, then.
 
@@ -576,7 +462,7 @@ Ahead, dark mountains waited beyond the ice.
 
 Long after Tickoni’s sail vanished, Genza returned to the Exchange.
 
-He placed a black envelope beside the damaged orchard ledger.
+He placed a black envelope beside the winter reserve ledger.
 
 On its face:
 
@@ -586,18 +472,10 @@ Genza pressed his name-seal in red beneath the words.
 
 Then he looked toward the little red apple counter.
 
-— One tree.
-
-His eyes narrowed.
-
-— We need more.
+— One tree. We need more.
 
 His eyes drifted to the map of the western mines still open on his desk.
 
 After a moment, he folded it shut.
 
-— The miners will manage.
-
-A pause.
-
-— They usually do.
+— The miners will manage... they usually do.
