@@ -30,7 +30,7 @@ Genza looked at Maro.
 
 Maro touched his purse.
 
-Seventeen hundred rei remained. The boatwright had finally received the three hundred rei he was owed. 
+Seventeen hundred rei remained. The boatwright had finally received the three hundred rei he was owed.
 
 Two debts remained, due in spring.
 
@@ -46,7 +46,7 @@ Ice crews pulled the last marker poles from the western channel.
 
 — Long Night begins tomorrow, — Genza said. — Once the ice closes, no ship leaves Kōri until spring.
 
-A traveller in a green cloak approached the food counter with two children beside her.
+A traveler in a green cloak approached the food counter with two children beside her.
 
 — Six apples, please.
 
@@ -58,7 +58,7 @@ The clerk shook his head.
 
 — It carried no fruit for Kōri.
 
-The traveller glanced at her children.
+The traveler glanced at her children.
 
 — My children have never tasted one.
 
@@ -72,35 +72,39 @@ Tickoni watched her go.
 
 The clerk glanced toward Genza.
 
-— Akane grows them inside sealed gardens. The keys, the tools, the repairs—all Akane. So are the harvest and the price.
+— Akane grows them inside sealed gardens and sells the keys. The locks, the tools, the repairs—all Akane’s. No keys, no apples.
 
-— She asked for fruit, not a garden.
+— They control the harvest and the price, and still take a share of every sale, — another clerk snapped.
 
-— Today, — Genza intervened. — Tomorrow the gate closes, the price doubles, and we are left holding keys we never owned and nothing to sell.
+— She asked for six apples, not a garden.
+
+— Akane sells gardens, not apples, — Genza said. — It can close the gates and leave us holding keys to a garden we never owned—and nothing to sell.
 
 — So Kōri refuses anything it cannot control.
 
-— We protect what we can maintain.
+— We do not build a market we cannot replenish, — Genza answered.
 
 — And how many customers do you send away because of that?
 
-Nobody answered.
+For a moment, nobody answered.
 
-Then one clerk shrugged.
+Then one clerk shrugged and pointed toward the fish barrel.
 
-— Enough, but we have only these to offer — pointing at the fish barrel.
+— Enough. But we have only these to offer.
 
 Genza folded his wings.
 
-— Apples do not survive our Long Night. There is nothing to discuss.
+— Apple trees do not survive the Long Night. There is nothing to discuss.
 
 — Have you tested that?
 
 The clerks laughed.
 
-Genza did not and glanced toward the inspection shed.
+Genza did not.
 
-— One Akane sapling came with the last southern ship as a present, just to spite us. We never found a way to maintain it.
+He glanced toward the inspection shed.
+
+— Akane sent a merchant with the last southern ship. When we refused to buy his keys, he left an apple sapling behind. Called it a gift. It should still be where he put it.
 
 One clerk pointed toward the fish counter.
 
@@ -242,7 +246,7 @@ Heat climbed through the buried line.
 
 Above them, steam entered the rice vault.
 
-Sacks blackened.
+Sacks darkened.
 
 Maro checked the ledger.
 
@@ -386,7 +390,7 @@ Tickoni gave him a slice.
 
 — That is a very fine apple.
 
-The children cheered.
+Children cheered.
 
 The Exchange opened a red counter:
 
@@ -394,7 +398,7 @@ KŌRI APPLES
 
 TRIAL SUPPLY
 
-Travellers gathered, and a line quickly formed.
+Travelers gathered, and a line quickly formed.
 
 — One slice per person! — called a delighted clerk.
 
@@ -406,7 +410,7 @@ Later, at the harbor, Maro faced Tickoni.
 
 — I think I’ll stay through the next season. I know how to place a trade. I want to understand what happens after it reaches a place like this. Deliveries. Reserves. Payments. What keeps the whole thing standing.
 
-— Yes. So do I.
+— Yes. I have more to learn too.
 
 A pause.
 

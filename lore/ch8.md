@@ -32,7 +32,7 @@ A voice called from above.
 
 — Keep left.
 
-An elder miner sat on a beam spanning the channel, mismatched tools tied across his back.
+An elderly, mole-like miner sat on a beam spanning the channel, mismatched tools tied across his back.
 
 Yamori looked at the calm water.
 
@@ -42,17 +42,17 @@ A stone broke from the right wall and crashed beside the boat.
 
 Yamori moved left.
 
-The old man grinned.
+The old miner grinned.
 
 At the landing, Tickoni handed him Genza’s map.
 
-The man examined the red stamp.
+The miner examined the red stamp.
 
 — Genza still keeps this?
 
 — He said the miners remember what the surface forgot.
 
-The man looked at Yamori’s crowded tool belt.
+The miner looked at Yamori’s crowded tool belt.
 
 — Then he sent the correct student.
 
@@ -94,7 +94,7 @@ Twenty steps below, the mountain opened.
 
 The mine stretched beyond sight.
 
-Small, mole-like miners moved between the workings, their dark coats powdered white with stone dust.
+Small miners moved between the workings, their dark coats powdered white with stone dust.
 
 Waterwheels turned beside bronze pumps. Iron cages climbed through shafts. Wooden carts crossed stone rails.
 
@@ -316,7 +316,7 @@ One side controlled the brake.
 
 The other controlled the lift.
 
-Between them was only the place where their commands had to meet.
+Between them was only the place where their signals had to meet.
 
 Placement had done its work.
 
@@ -338,7 +338,7 @@ Then he tore the old adapters apart.
 
 He kept one connection from each machine.
 
-Between them he built a small wooden box with four marked tiles.
+Between them he built a small wooden box with three marked tiles—the only signals they needed.
 
 **HOLD**
 
@@ -346,13 +346,11 @@ Between them he built a small wooden box with four marked tiles.
 
 **RAISE**
 
-**STOP**
-
 The bronze machine could work in its own way.
 
 So could the iron one.
 
-But only those four agreed commands could pass between them.
+But only those three agreed signals could pass between them.
 
 Mokichi pointed to the empty space beneath the tiles.
 
@@ -362,7 +360,7 @@ Yamori fitted a locking bar across it.
 
 — Nothing passes.
 
-They tested an empty cage.
+Yamori checked every notch and contact on the adapter.
 
 Hold.
 
@@ -370,23 +368,9 @@ Ready.
 
 Raise.
 
-Stop.
-
-Then a cage loaded with stones equal to six miners.
-
-Again.
-
-Hold.
-
-Ready.
-
-Raise.
-
-Stop.
+Then he fitted it between the two machines.
 
 — Now, — Mokichi said.
-
-The real cage waited below.
 
 Black water had already climbed to the miners’ waists.
 
@@ -628,7 +612,7 @@ Far across the Ledger Sea, in the village with too many maps, Genza’s letter l
 
 A claw paused on the line.
 
-*The oni employed three seals of the Order during the incident.*
+*The oni employed three Seals of the Order during its stay on Kōri.*
 
 — Three.
 

@@ -327,11 +327,11 @@ But it had not returned when Tickoni found it.
 It had returned only after the rule had been tested.
 
 A name returned to the air.
- 
+
 **The Seal of the Ticket.**
- 
+
 *Every wish has its limits.*
- 
+
 Tickoni touched the new mark beneath its ribs.
 
 The Council had inherited its laws and forgotten them.
@@ -345,7 +345,7 @@ Each law would have to be earned.
 Each law would have to survive the sea.
 
 Far behind them stood the village with too many maps.
- 
+
 Ahead, the Ledger Sea stretched without end.
 
 Somewhere beyond the horizon, other black fragments were waiting.

@@ -291,6 +291,6 @@ Tickoni placed one claw over the fire beneath its ribs.
 
 — I will forge a contract no oni can break.
 
-The contract was no longer something Tickoni carried.
+The contract Tickoni meant to forge would not be something it carried.
 
-It was something Tickoni was.
+It would be something Tickoni became.
