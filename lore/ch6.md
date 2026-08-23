@@ -85,8 +85,7 @@ The kitsune studied Tickoni for a moment.
 
 Another tower fell.
 
-— Eight channels. Forty-three ships, — the kitsune said. — Every captain demands water no one else may enter. Without the towers, I cannot place them.
-— Once one captain thinks a channel is safer, the others follow. Then it stops being safer.
+— Eight channels. Forty-three ships, — the kitsune said. — Every captain demands water no one else may enter. Without the towers, I cannot place them. Once one captain thinks a channel is safer, the others follow. Then it stops being safer.
 
 She watched another ship turn toward the crowded passage.
 

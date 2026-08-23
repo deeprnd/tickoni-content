@@ -34,7 +34,7 @@ From Maro’s belt hung something older.
 
 A brass payment tag.
 
-Three hundred rei owed to the boatwright who had repaired the mast of Maro’s abandoned vessel before his chase toward the oil storm.
+Three hundred rei owed to the boatwright who had repaired the mast of Maro’s boat before his chase toward the oil storm.
 
 The first payment had failed.
 

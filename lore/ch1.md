@@ -58,8 +58,6 @@ a binding mark that named its duty and drew its boundary.
 An oni could guard a vault, carry an order, or mark an approval—
 but only inside the boundary written for it.
 
-Some guarded vaults, some marked approvals, and others carried orders between islands.
-
 The oldest stories said these marks answered to something greater: an ancient Contract that had once bound every guardian of the Ledger Sea.
 
 No surviving tablet preserved the Contract whole.

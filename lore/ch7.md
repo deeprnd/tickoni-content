@@ -144,7 +144,7 @@ The Seal of the Ticket glowed.
 
 The next morning, Genza sent for Yamori, a small green lizard craftsman with a belt crowded by mismatched tools.
 
-— Can you make Akane equipment work here? — Tickoni asked.
+— Can you make it grow without Akane equipment? — Tickoni asked.
 
 — I can make it fit Kōri tools. That does not make it Kōri. One guild makes the lock. Another makes the key. A third measures the door. Then someone loses the instructions and calls for me.
 
@@ -154,7 +154,7 @@ Yamori snapped the belt shut.
 
 — I dislike being needed for stupid reasons. One day, I’ll build a workshop that needs no second workshop.
 
-They built beside the bathhouse. Cedar beams raised the sapling above the ice. Yamori replaced hidden fittings with visible joints any Kōri smith could open. Waste warmth ran through exposed pipes.
+They built beside the bathhouse. Cedar beams raised the sapling above the ice. Yamori built it with visible joints any Kōri smith could open. Waste warmth ran through exposed pipes.
 
 Through the Long Night, Maro worked the settlement desk while Tickoni tended the branches and Yamori adjusted pipes and vents.
 
@@ -184,7 +184,7 @@ They descended.
 
 Maro followed with the Exchange reserve ledger tucked beneath his coat.
 
-The new Akane pipes ended after twenty steps.
+The new pipes ended after twenty steps.
 
 Older Kōri iron continued below them.
 
@@ -408,7 +408,7 @@ Genza handed Maro the blue settlement ledger.
 
 Later, at the harbor, Maro faced Tickoni.
 
-— I think I’ll stay through the next season. I know how to place a trade. I want to understand what happens after it reaches a place like this. Deliveries. Reserves. Payments. What keeps the whole thing standing.
+— I think I’ll stay through the next season. I know how to place a trade. Before I invest again, I want to understand what happens after it reaches a place like this. Deliveries. Reserves. Payments. What keeps the whole thing standing.
 
 — Yes. I have more to learn too.
 
