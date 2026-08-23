@@ -1,3 +1,4 @@
 [submodule "editor"]
 	path = editor
 	url = git@deeprnd.github.com:deeprnd/tickoni-content-editor.git
+	branch = main
