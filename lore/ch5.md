@@ -48,13 +48,13 @@ A round-faced trader waited inside.
 
 He wore a blue silk robe, round spectacles without glass, and a smile polished smooth by repetition.
 
-— Saburō, — he announced. — Master folder of favorable winds.
+— Saburo, — he announced. — Master folder of favorable winds.
 
 Tickoni examined the empty spaces where official marks should have been.
 
 — Licensed by whom?
 
-Saburō spread his paws.
+Saburo spread his paws.
 
 — By results.
 
@@ -62,7 +62,7 @@ Saburō spread his paws.
 
 Maro placed his ticket on the counter.
 
-After surviving the funayūrei, he had chosen the smaller basket.
+After surviving the funayurei, he had chosen the smaller basket.
 
 The ironworks.
 
@@ -74,13 +74,13 @@ The basket required 2,000 ori, leaving enough practice cash to keep the boat abo
 
 His payment to the boatwright remained separate, awaiting renewed approval.
 
-Saburō examined the ticket.
+Saburo examined the ticket.
 
 — Modest.
 
 — Bounded, — Tickoni said.
 
-Saburō laid down a square of pale-blue washi, fine handmade paper.
+Saburo laid down a square of pale-blue washi, fine handmade paper.
 
 His paws moved quickly.
 
@@ -114,9 +114,9 @@ The crowd surged toward the Moon Deck.
 
 Maro placed the genuine crane safely inside his coat.
 
-Saburō watched him leave.
+Saburo watched him leave.
 
-Then Saburō opened a hidden drawer and removed another sheet of blue washi.
+Then Saburo opened a hidden drawer and removed another sheet of blue washi.
 
 He copied Maro’s handwriting, his basket, and even the small thumbprint near the crane’s tail.
 
@@ -158,7 +158,7 @@ Stop.
 
 — Your crane knows its path, — Tickoni said.
 
-Saburō appeared beside them carrying a spool of golden ribbon.
+Saburo appeared beside them carrying a spool of golden ribbon.
 
 — Every crane needs an auction ribbon before launch.
 
@@ -172,13 +172,13 @@ Tickoni looked at the gold thread.
 
 — Why, a winner, of course.
 
-Saburō held out one paw.
+Saburo held out one paw.
 
 — Your crane, please.
 
 Maro handed it over.
 
-Saburō carried the crane to the ribbon table. His sleeves covered his paws for only a moment.
+Saburo carried the crane to the ribbon table. His sleeves covered his paws for only a moment.
 
 Then he returned a pale-blue crane tied with gold thread.
 
@@ -186,7 +186,7 @@ Then he returned a pale-blue crane tied with gold thread.
 
 Maro reached for it.
 
-Tickoni caught Saburō’s wrist.
+Tickoni caught Saburo’s wrist.
 
 — Give him back the real one.
 
@@ -196,7 +196,7 @@ Maro stared at the crane.
 
 — It looks like yours, — Tickoni said. — It does not carry your choice.
 
-Saburō laughed.
+Saburo laughed.
 
 — Same trader. Same three investments. I merely gave the crane enough courage to win.
 
@@ -212,7 +212,7 @@ Maro’s face hardened.
 
 — I chose two thousand.
 
-— Twenty-five thousand flies faster, — Saburō said.
+— Twenty-five thousand flies faster, — Saburo said.
 
 — Twenty-five thousand does not exist in my ledger.
 
@@ -232,11 +232,11 @@ Maro looked at Tickoni.
 
 Tickoni placed the forged bird on the deck.
 
-Then Maro removed the genuine crane, which Saburō had hidden beneath the ribbon table.
+Then Maro removed the genuine crane, which Saburo had hidden beneath the ribbon table.
 
 — Unfold them, — Tickoni said.
 
-Saburō stepped back.
+Saburo stepped back.
 
 — That will destroy them.
 
@@ -264,7 +264,7 @@ Tickoni unfolded the copy.
 
 The first images matched.
 
-Then, at the seventh fold, Saburō’s paw appeared.
+Then, at the seventh fold, Saburo’s paw appeared.
 
 It changed.
 
@@ -294,7 +294,7 @@ A red line burned across the air.
 
 The crowd fell silent.
 
-Saburō snapped his fingers.
+Saburo snapped his fingers.
 
 Every crane he had folded rose from the city at once.
 
@@ -338,7 +338,7 @@ The boy found his family’s land deed folded into the trade.
 
 He tore it from the crane before it reached the storm.
 
-The crowd turned on Saburō.
+The crowd turned on Saburo.
 
 The tanuki leaped onto the ropes supporting the paper moon.
 
@@ -346,7 +346,7 @@ The tanuki leaped onto the ropes supporting the paper moon.
 
 — I am stopping your hand from wearing its face, — Tickoni replied.
 
-Saburō pulled one final golden crane from his sleeve.
+Saburo pulled one final golden crane from his sleeve.
 
 Across its wings was written:
 
@@ -444,7 +444,7 @@ The bell.
 
 Every step repeated exactly.
 
-Beside Saburō’s ruined copy appeared the same red line:
+Beside Saburo’s ruined copy appeared the same red line:
 
 **First difference: amount changed.**
 

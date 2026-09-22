@@ -6,7 +6,7 @@ Blue ice cracked beneath the hull. At noon, lanterns appeared between black clif
 
 Above the harbor gate hung a cedar sign:
 
-**KŌRI NORTHERN EXCHANGE**
+**KORI NORTHERN EXCHANGE**
 
 Penguin-like islanders worked the piers in indigo coats. Cargo passed through three stations.
 
@@ -44,7 +44,7 @@ Ships raised sail.
 
 Ice crews pulled the last marker poles from the western channel.
 
-— Long Night begins tomorrow, — Genza said. — Once the ice closes, no ship leaves Kōri until spring.
+— Long Night begins tomorrow, — Genza said. — Once the ice closes, no ship leaves Kori until spring.
 
 A traveler in a green cloak approached the food counter with two children beside her.
 
@@ -56,7 +56,7 @@ The clerk shook his head.
 
 — An Akane ship passed the southern channel yesterday.
 
-— It carried no fruit for Kōri.
+— It carried no fruit for Kori.
 
 The traveler glanced at her children.
 
@@ -80,7 +80,7 @@ The clerk glanced toward Genza.
 
 — Akane sells gardens, not apples, — Genza said. — It can close the gates and leave us holding keys to a garden we never owned—and nothing to sell.
 
-— So Kōri refuses anything it cannot control.
+— So Kori refuses anything it cannot control.
 
 — We do not build a market we cannot replenish, — Genza answered.
 
@@ -146,7 +146,7 @@ The next morning, Genza sent for Yamori, a small green lizard craftsman with a b
 
 — Can you make it grow without Akane equipment? — Tickoni asked.
 
-— I can make it fit Kōri tools. That does not make it Kōri. One guild makes the lock. Another makes the key. A third measures the door. Then someone loses the instructions and calls for me.
+— I can make it fit Kori tools. That does not make it Kori. One guild makes the lock. Another makes the key. A third measures the door. Then someone loses the instructions and calls for me.
 
 — You dislike being needed?
 
@@ -154,7 +154,7 @@ Yamori snapped the belt shut.
 
 — I dislike being needed for stupid reasons. One day, I’ll build a workshop that needs no second workshop.
 
-They built beside the bathhouse. Cedar beams raised the sapling above the ice. Yamori built it with visible joints any Kōri smith could open. Waste warmth ran through exposed pipes.
+They built beside the bathhouse. Cedar beams raised the sapling above the ice. Yamori built it with visible joints any Kori smith could open. Waste warmth ran through exposed pipes.
 
 Through the Long Night, Maro worked the settlement desk while Tickoni tended the branches and Yamori adjusted pipes and vents.
 
@@ -186,7 +186,7 @@ Maro followed with the Exchange reserve ledger tucked beneath his coat.
 
 The new pipes ended after twenty steps.
 
-Older Kōri iron continued below them.
+Older Kori iron continued below them.
 
 Deeper still, green bronze channels vanished into the rock.
 
@@ -250,7 +250,7 @@ Sacks darkened.
 
 Maro checked the ledger.
 
-— Can Kōri survive it? — Yamori asked.
+— Can Kori survive it? — Yamori asked.
 
 — It’s almost ten percent of the reserve. But yes. The other vaults carry us through the thaw.
 
@@ -304,7 +304,7 @@ Silence.
 
 He closed the ledger.
 
-— You saved one tenth of the grain. It cost Kōri one fifth of its heat. Your seal showed us the cost. It did not choose for us.
+— You saved one tenth of the grain. It cost Kori one fifth of its heat. Your seal showed us the cost. It did not choose for us.
 
 Yamori followed the old bronze line west.
 
@@ -362,7 +362,7 @@ Genza folded his wings.
 
 — I have just the work for you two.
 
-The Long Night was not easy on Kōri. Street lanterns went dark, workshops closed early, and the New Year fires were never lit.
+The Long Night was not easy on Kori. Street lanterns went dark, workshops closed early, and the New Year fires were never lit.
 
 Tickoni and Yamori hauled cargo, cleared ice, scrubbed floors, and worked wherever another pair of hands was needed.
 
@@ -394,7 +394,7 @@ Children cheered.
 
 The Exchange opened a red counter:
 
-KŌRI APPLES
+KoRI APPLES
 
 TRIAL SUPPLY
 
@@ -442,7 +442,7 @@ Before Tickoni could answer, Genza approached with a rolled map beneath his wing
 
 He handed Tickoni the map.
 
-— There are old mines beyond Kōri. Traders once brought machinery there from every shore. Their standards are... unusually accommodating.
+— There are old mines beyond Kori. Traders once brought machinery there from every shore. Their standards are... unusually accommodating.
 
 Yamori unfolded the map.
 
@@ -452,7 +452,7 @@ Yamori unfolded the map.
 
 Genza glanced toward the eastern rice vault.
 
-— I think Kōri has benefited sufficiently from your attention.
+— I think Kori has benefited sufficiently from your attention.
 
 — Tomorrow, then.
 

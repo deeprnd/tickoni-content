@@ -576,7 +576,7 @@ Still indifferent.
 
 But no longer blank.
 
-Beneath the wound where the fūin had been, five narrow lines warmed once and faded before Tickoni could name them.
+Beneath the wound where the fuin had been, five narrow lines warmed once and faded before Tickoni could name them.
 
 Tickoni raised the torn sail.
 

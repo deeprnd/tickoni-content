@@ -16,7 +16,7 @@ One map showed every price. One oracle answered every question. One mirror showe
 
 Still, the villagers kept losing coins.
 
-One evening, a fisherman named Jirō ran into the Council Hall. His hands bled from pulling nets. He carried a cracked order tile.
+One evening, a fisherman named Jiro ran into the Council Hall. His hands bled from pulling nets. He carried a cracked order tile.
 
 — My daughter’s medicine fund, — he said. — The mirror showed everyone buying the Moon Carp. I asked an oni to follow them.
 
@@ -24,19 +24,19 @@ The eldest oni barely looked up.
 
 — And the price fell.
 
-— The company had no boats, — Jirō said. — No catch. Only painted sails and borrowed bells.
+— The company had no boats, — Jiro said. — No catch. Only painted sails and borrowed bells.
 
 The elder shrugged.
 
 — We only did what you asked.
 
-Jirō looked at the empty purse tied to his waist.
+Jiro looked at the empty purse tied to his waist.
 
 No one moved.
 
 Except Tickoni.
 
-Tickoni stood near the rear pillars, smaller than the elders and without their gold rings. It watched Jirō leave.
+Tickoni stood near the rear pillars, smaller than the elders and without their gold rings. It watched Jiro leave.
 
 That answer followed Tickoni into the night.
 
@@ -52,7 +52,7 @@ A map could show where the tide had moved, but not what it would break next. An 
 
 The village had bound the Order of the Oni because it had not always been like this.
 
-Long ago, every oni bore a fūin—
+Long ago, every oni bore a fuin—
 a binding mark that named its duty and drew its boundary.
 
 An oni could guard a vault, carry an order, or mark an approval—
@@ -82,7 +82,7 @@ The oni answered faster each year. Speed became reputation. Reputation became au
 
 They asked only whether they could perform it first.
 
-That was when the Order discovered bōyūsō.
+That was when the Order discovered boyuso.
 
 The pale herb grew beneath the exchange towers. The elders said it steadied the hand and quieted doubt.
 
@@ -92,7 +92,7 @@ Then it helped them ignore.
 
 Then it made them dream while awake.
 
-Bōyūsō filled the Council Hall with visions: endless green candles, perfect entries, golden ledgers, and stone bulls breathing coins.
+Boyuso filled the Council Hall with visions: endless green candles, perfect entries, golden ledgers, and stone bulls breathing coins.
 
 The oni saw certainty where there was motion.
 
@@ -106,7 +106,7 @@ They had forgotten the oldest law of protection:
 
 **A guardian must know what not to touch.**
 
-For several days, Jirō’s words followed it through the village.
+For several days, Jiro’s words followed it through the village.
 
 *My daughter’s medicine fund.*
 
@@ -134,7 +134,7 @@ Tickoni looked at the merchant.
 
 Then at the purse marked for winter grain.
 
-It remembered Jirō walking out with nothing.
+It remembered Jiro walking out with nothing.
 
 — No.
 
@@ -170,7 +170,7 @@ A guardian who could refuse a wish threatened everything the Order had become.
 
 They summoned Tickoni beneath the red beams.
 
-The elders sat in rows, swollen with bōyūsō and gold rings, their marks still bright.
+The elders sat in rows, swollen with boyuso and gold rings, their marks still bright.
 
 The eldest leaned forward.
 
@@ -192,7 +192,7 @@ Their shadows stretched across the floor like broken gates.
 
 — You are no oni of ours.
 
-They seized Tickoni’s fūin and tore it away.
+They seized Tickoni’s fuin and tore it away.
 
 The hall thundered.
 
@@ -215,7 +215,7 @@ Some flew east across the Ledger Sea. Others vanished north and west. For an ins
 
 The eldest oni looked upward.
 
-For the first time, the bōyūsō haze left his eyes.
+For the first time, the boyuso haze left his eyes.
 
 — What have we done?
 

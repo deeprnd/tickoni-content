@@ -1,6 +1,6 @@
 ## Chapter 8: Common Tongue
 
-The mountains beyond Kōri looked close from the sea.
+The mountains beyond Kori looked close from the sea.
 
 They were not.
 
@@ -475,7 +475,7 @@ Tickoni stood beside the wooden box.
 
 The half-mark beneath its ribs burned.
 
-At Kōri, different systems had been given one place to meet without becoming one system.
+At Kori, different systems had been given one place to meet without becoming one system.
 
 That had been only half the lesson.
 
@@ -612,7 +612,7 @@ Far across the Ledger Sea, in the village with too many maps, Genza’s letter l
 
 A claw paused on the line.
 
-*The oni employed three Seals of the Order during its stay on Kōri.*
+*The oni employed three Seals of the Order during its stay on Kori.*
 
 — Three.
 

@@ -94,7 +94,7 @@ Maro froze.
 
 Tickoni did not.
 
-— Umibōzu.
+— Umibozu.
 
 The spirit smiled.
 
@@ -104,7 +104,7 @@ Maro whispered:
 
 — A hunger that learned to speak like opportunity.
 
-Umibōzu lowered one enormous eye toward Maro’s purse.
+Umibozu lowered one enormous eye toward Maro’s purse.
 
 — I carry wishes faster than wind. No gates. No forms. Say buy, and the current moves.
 
@@ -136,7 +136,7 @@ The boat stopped.
 
 — A wish cannot touch the sea raw.
 
-Umibōzu laughed.
+Umibozu laughed.
 
 — The Order was right about you. You close doors and call it protection.
 
@@ -190,7 +190,7 @@ Tickoni sealed it.
 
 — Not this market. Not this ticket.
 
-Umibōzu smiled.
+Umibozu smiled.
 
 — Watch the oni cut away your fortune.
 
@@ -206,7 +206,7 @@ The ticket darkened.
 
 — Your evidence has not grown. Only your size.
 
-Umibōzu lowered its face until one black eye filled the sky.
+Umibozu lowered its face until one black eye filled the sky.
 
 — Send it now. Before another trader takes what should be yours.
 
@@ -218,7 +218,7 @@ But it was not yet an order.
 
 His hand moved toward it.
 
-— Say it raw, — Umibōzu whispered. — No limits. No little demon between you and the life you deserve.
+— Say it raw, — Umibozu whispered. — No limits. No little demon between you and the life you deserve.
 
 The flame-script beneath Tickoni’s ribs began to glow: one tile to receive, one to carry, one to check, one to record, and one to stop the breach.
 
@@ -226,7 +226,7 @@ Tickoni placed one claw between Maro’s hand and the sea.
 
 — No raw order.
 
-Umibōzu hissed.
+Umibozu hissed.
 
 — I need no ticket.
 
@@ -236,7 +236,7 @@ Tickoni looked up.
 
 The storm exploded.
 
-All night, Umibōzu circled them.
+All night, Umibozu circled them.
 
 It showed Maro a golden pier, his debts paid, his drowned boat replaced by a ship with a hundred sails.
 
@@ -274,7 +274,7 @@ Maro watched them pass.
 
 His full purse remained in his hand.
 
-Umibōzu rose behind the boat, furious.
+Umibozu rose behind the boat, furious.
 
 — Another night, little trader. Another wish.
 
@@ -286,7 +286,7 @@ At last, he looked at Tickoni.
 
 — I thought you were stopping me from becoming rich.
 
-Tickoni looked toward the place where Umibōzu had vanished.
+Tickoni looked toward the place where Umibozu had vanished.
 
 For part of the night, it had feared the same thing.
 
@@ -306,7 +306,7 @@ The bounded ticket gave a quiet sound, like metal cooling after flame.
 
 A black fragment rose from beneath it.
 
-Small, curved, and unmistakably older than Tickoni’s fūin.
+Small, curved, and unmistakably older than Tickoni’s fuin.
 
 Before Tickoni could touch it, the fragment flew toward the lines beneath its ribs and locked into the flame-script below the wound left by the Council.
 
@@ -316,7 +316,7 @@ It had seen that black fire before.
 
 The Council Hall.
 
-The torn fūin.
+The torn fuin.
 
 The black sparks rising from beneath it and scattering across the Ledger Sea.
 
